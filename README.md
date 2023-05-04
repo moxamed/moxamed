@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @moxamed
 - 👀 I’m interested in coding, computer science.
-- 🌱 I’m currently learning my last year of computer scince
+- 🌱 freshhhhhh graduate computer scince
 - 💞️ I’m looking to collaborate on coding 
 - 📫 How to reach me ...
 
